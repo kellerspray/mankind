@@ -3,7 +3,7 @@ Let`s start with the plan.
 
 Authors note: 
 
-Current state v0.0.1 involves a quite random idea of a ~52y human with a productive live, children, fullfilling marriage, commitment and contribution to a society of free choice on life.
+Current state v0.0.1 involves a quite random idea of a ~52y human with a productive live, children, fullfilling marriage, commitment and contribution to a society of free choice on life and a fair relation of most people not riddled by greed.
 
 Status of workd:
 
